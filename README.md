@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...J
 - 🤔 I’m looking for help with ...D
 - 💬 Ask me about ...codes!!!!!
-- 📫 How to reach me: ...twitter
+- 📫 How to reach me: ...vanditamishra51@gmail.com 
 - 😄 Pronouns: ...She/her
 - ⚡ Fun fact: ...😆🤪🥴🥴🥴🥴
 -->
